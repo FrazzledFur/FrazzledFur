@@ -24,11 +24,4 @@ please check my alt @wormsNmaggotz for info related 2 this drama
   
 doubles,gourdy fans preds/zoos/ect that arent in recovery anyone in contact with coalcarolynne/snowyrescue anyone who supports coal and her friends people who r against smoking, ai users lsp fans brandonfarris/camerondomasky fans anypuppy under 15 anypuppy above 26  </details>
 </div>
-
-<img width="735" height="287" alt="Untitled729_20261101014016" src="https://github.com/user-attachments/assets/462b983c-7244-44df-81d9-19c6697c9f52" />
-
-<img width="735" height="287" alt="Untitled729_20261101014123" src="https://github.com/user-attachments/assets/fa8e037e-f327-44b6-be64-09048fccecdd" />
-
-<img width="735" height="287" alt="Untitled729_20261101014057" src="https://github.com/user-attachments/assets/a16eab66-3617-4714-b0c3-42177e8e13a1" />
-
-<img width="735" height="287" alt="Untitled729_20261101014147" src="https://github.com/user-attachments/assets/4b197440-b478-4cc0-a27b-cdffe505a368" />
+<img width="735" height="287" alt="Untitled729_20261101014057" src="https://github.com/user-attachments/assets/95cf4d31-a634-41d4-b1b9-dd8dea6d64d0" />
