@@ -1,3 +1,6 @@
+only statement il put here - pawlickk isnt the map flag pup is the twink flag !! https://www.reddit.com/media?url=https%3A%2F%2Fpreview.redd.it%2Ftwink-flag-for-u-thecatwakesmeup-v0-7ap4h9gxo0w51.png%3Fwidth%3D800%26format%3Dpng%26auto%3Dwebp%26s%3D7ee0a6e52225d93e39e0c7c84810a50f5a5495a5 im aware reddit isnt the most trustworthy site but it is the closest flag I could find, pawlickk has told us its the twink flag several times
+
+
 please check my alt @wormsNmaggotz for info related 2 this drama 
 
 
