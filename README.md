@@ -1,4 +1,4 @@
-only statement il put here - pawlickk isnt the map flag pup is the twink flag , specifically the iris twink flag (as shown by paw pupself) https://pin.it/2q51QNyqX , I apologise for the previous link paw was not awake at the time of the original edit and that flag was the closest I could find ^_^
+only statement il put here - pawlickk isnt the map flag pup is the twink flag , specifically the iris twink flag (as shown by paw pupself) https://pin.it/2q51QNyqX , I apologise for the previous link paw was not awake at the time of the original edit and that flag was the closest I could find ^_^ , , also its not mass reporting ! ! only two people reported soul shield please stop thinking ur some big thing people want to mass report over i promsie ur not
 
 
 please check my alt @wormsNmaggotz for info related 2 this drama 
