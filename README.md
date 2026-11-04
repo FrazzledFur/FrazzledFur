@@ -1,7 +1,7 @@
 hi can you guys stop calling me cody/codypup thats a name im only comfortable with my friends using,,,thankies,,,
 same with he/him and they/them please refer to me as wlf/wlfs/wlfgrl/wlfgrls/wlfself
 
-only statement il put here - pawlickk isnt the map flag pup is the twink flag , specifically the iris twink flag (as shown by paw pupself) https://pin.it/2q51QNyqX , I apologise for the previous link paw was not awake at the time of the original edit and that flag was the closest I could find ^_^ , , also its not mass reporting ! ! only two people reported soul shield please stop thinking ur some big thing people want to mass report over i promsie ur not
+only statement il put here - pawlickk isnt the map flag pup is the twink flag , specifically the iris twink flag (as shown by paw pupself) https://pin.it/2q51QNyqX , I apologise for the previous link paw was not awake at the time of the original edit and that flag was the closest I could find ^_^ , , also its not mass reporting ! ! only two people reported soul shield please stop thinking ur some big thing people want to mass report over i promsie ur not ,, ok last thing - replying to that doc about darkshipping i DO have ways of coping and none of those methods r darkships!! i smoke weed, i draw, i talk about interests, i play games.
 
 
 please check my alt @wormsNmaggotz for info related 2 this drama 
