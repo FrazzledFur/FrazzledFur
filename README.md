@@ -30,6 +30,8 @@ please check alt @wormsNmaggotz for stuff related to drama
 <img width="1000" height="100" alt="fall-autumn" src="https://github.com/user-attachments/assets/85da6e80-41fd-47b0-b137-a89f0b19a105" />
 <img width="1000" height="100" alt="tumblr_9f6eaedd57f453dc3cc1c4f5933132fd_e5afd665_250" src="https://github.com/user-attachments/assets/3e39958f-0b0f-4a50-8ab5-afee1c4e4d4b" />
 <img width="99" height="56" alt="tumblr_19cc4a98822960a87963b59a2b6cd50b_a491639c_100" src="https://github.com/user-attachments/assets/027f453e-2211-4dca-a12c-6522551635e1" />
+<img width="99" height="56" alt="tumblr_5b423664bdfd576ed23e401e6c66dee7_73d50e17_100" src="https://github.com/user-attachments/assets/239cc92b-4df3-4b15-a35a-9b2d908ca188" />
+
 
 
 
