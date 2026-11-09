@@ -18,6 +18,10 @@ please check alt @wormsNmaggotz for stuff related to drama
 </div>
 
 
-
+<div align="center">
+<details> doubles, people who are against smoking, anyone involved with @snowyrescue or her henchmen, tcooal fans, brandonfarris/camerondomasky fans, radqueers, anypup under 14, anypup above 26, people who think a clockwork orange is disgusting
+  <summary><strong> 🐶 dni ! </strong></summary> 
+</details>
+</div>
 
 
