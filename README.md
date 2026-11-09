@@ -31,6 +31,10 @@ please check alt @wormsNmaggotz for stuff related to drama
 <img width="1000" height="100" alt="tumblr_9f6eaedd57f453dc3cc1c4f5933132fd_e5afd665_250" src="https://github.com/user-attachments/assets/3e39958f-0b0f-4a50-8ab5-afee1c4e4d4b" />
 <img width="99" height="56" alt="tumblr_19cc4a98822960a87963b59a2b6cd50b_a491639c_100" src="https://github.com/user-attachments/assets/027f453e-2211-4dca-a12c-6522551635e1" />
 <img width="99" height="56" alt="tumblr_5b423664bdfd576ed23e401e6c66dee7_73d50e17_100" src="https://github.com/user-attachments/assets/239cc92b-4df3-4b15-a35a-9b2d908ca188" />
+<img width="99" height="56" alt="tumblr_543163aabd8c9d9477ad042ddb18e336_823af5b2_100" src="https://github.com/user-attachments/assets/ef2555aa-558e-4cde-9d4d-29d1bbd88bb9" />
+<img width="99" height="55" alt="tumblr_e9cce664261d72778b093bb4b3565786_30f6bf1d_100" src="https://github.com/user-attachments/assets/da26c6ad-df49-4275-b17f-d887aeb771e5" />
+<img width="99" height="55" alt="tumblr_5b4c8f987baab5fc4a63e088ed0453d7_2bd4a410_100" src="https://github.com/user-attachments/assets/b95d437a-2f41-4a42-b2d2-10bbeea5b56c" />
+
 
 
 
