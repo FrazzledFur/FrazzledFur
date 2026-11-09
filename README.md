@@ -27,6 +27,6 @@ please check alt @wormsNmaggotz for stuff related to drama
 </details>
 </div>
 
-<img align="center" width="200" height="200" src=<img width="150" height="20" alt="tumblr_9f6eaedd57f453dc3cc1c4f5933132fd_e5afd665_250" src="https://github.com/user-attachments/assets/24880af6-c644-46d4-bfef-e4fdcd69cd9f" />
+<img width="200" height="200" alt="fall-autumn" src="https://github.com/user-attachments/assets/85da6e80-41fd-47b0-b137-a89f0b19a105" />
 
 
