@@ -1,3 +1,5 @@
+<img width="1024" height="150" alt="tumblr_6a430d9f743907ea3e243f1e1fa57a49_b9ead9b7_1280" src="https://github.com/user-attachments/assets/dfec45c5-e142-4fb8-8612-7f6cf6fb5c72" />
+
 <img width="2048" height="2048" alt="Untitled742_20261109194648" src="https://github.com/user-attachments/assets/c7fcdbd4-0c72-464f-b281-2918f7edaa6e" />
 
 please check alt @wormsNmaggotz for stuff related to drama
