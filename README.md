@@ -27,6 +27,8 @@ please check alt @wormsNmaggotz for stuff related to drama
 </details>
 </div>
 
-<img width="900" height="100" alt="fall-autumn" src="https://github.com/user-attachments/assets/85da6e80-41fd-47b0-b137-a89f0b19a105" />
+<img width="1000" height="100" alt="fall-autumn" src="https://github.com/user-attachments/assets/85da6e80-41fd-47b0-b137-a89f0b19a105" />
+<img width="1000" height="100" alt="tumblr_9f6eaedd57f453dc3cc1c4f5933132fd_e5afd665_250" src="https://github.com/user-attachments/assets/3e39958f-0b0f-4a50-8ab5-afee1c4e4d4b" />
+
 
 
