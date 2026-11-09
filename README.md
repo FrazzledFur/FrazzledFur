@@ -47,6 +47,9 @@ please do not reupload any of my art
 <img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/08b859e2-012e-4817-9343-dade692279a5" />
 <img width="99" height="56" alt="stamp (6)" src="https://github.com/user-attachments/assets/3ee732a1-6dec-4dc1-952c-84d07cb16be9" />
 <img width="99" height="56" alt="stamp (7)" src="https://github.com/user-attachments/assets/8bf662ee-eeef-4b6a-9561-9624e6e69790" />
+<img width="99" height="56" alt="stamp (8)" src="https://github.com/user-attachments/assets/2cd6327b-3690-4b72-acb4-76eda50db30c" />
+<img width="99" height="56" alt="stamp (9)" src="https://github.com/user-attachments/assets/a94c3600-66cd-4bca-b33d-d2718744ff4c" />
+<img width="99" height="56" alt="stamp (10)" src="https://github.com/user-attachments/assets/ae20d74a-3141-45e5-9f0b-1e66769f6d0c" />
 
 
 
