@@ -4,9 +4,18 @@ please check alt @wormsNmaggotz for stuff related to drama
  
 <div align="center">
 <details> gourdy, glisten, twisted astro, jeff the killer, neon green, ron
-  <summary><strong> 🎃 f/os! NONSHARING  ! </strong></summary> <div align="center">
+  <summary><strong> 🎃 f/os! NONSHARING  ! </strong></summary> 
+</details>
+</div>
+
+
+
+  <div align="center">
 <details> looey, shadow the hedgehog, shadow.exe, rei ayanami, yani neko / chainsmoker cat, ginger (ginger snaps), ami (the machine girl), jonathan (hotel transylvania) 
   <summary><strong> 🍁 kin list, doubles dni! </strong></summary> 
+</details>
+
+</div>
 
 
 
