@@ -1,3 +1,4 @@
-<img width="2048" height="2048" alt="Untitled742_20261109194229" src="https://github.com/user-attachments/assets/0476f123-869d-4c8b-aaa7-f30b556a30e1" />
+<img width="2048" height="2048" alt="Untitled742_20261109194648" src="https://github.com/user-attachments/assets/c7fcdbd4-0c72-464f-b281-2918f7edaa6e" />
+
 
 please check alt @wormsNmaggotz for stuff related to drama
