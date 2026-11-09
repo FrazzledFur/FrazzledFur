@@ -36,6 +36,7 @@ please check alt @wormsNmaggotz for stuff related to drama
 <img width="99" height="55" alt="tumblr_5b4c8f987baab5fc4a63e088ed0453d7_2bd4a410_100" src="https://github.com/user-attachments/assets/b95d437a-2f41-4a42-b2d2-10bbeea5b56c" />
 <img width="98" height="56" alt="stamp" src="https://github.com/user-attachments/assets/d30ba8a1-e033-4b92-a46f-7ac12e441fa7" />
 <img width="99" height="56" alt="stamp (1)" src="https://github.com/user-attachments/assets/14f9fc6e-f75b-476e-8531-cf9b6e750331" />
+<img width="99" height="56" alt="stamp (1)" src="https://github.com/user-attachments/assets/715a30fb-03a8-45b1-9fdc-7a045f6a36e6" />
 
 
 
