@@ -1,4 +1,4 @@
-<p align="center">
+
  
  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=oleo+script+1&size=15&pause=1000&color=F43403&width=435&lines=autumn+forever+encapsulated+in+soul;pattering+against+the+mind+like+evening+rain;life+as+simple+as+a+caramel+apple;the+leaves+as+colourful+as+human+ambition;i+hope+this+lasts+forever)](https://git.io/typing-svg)
 
