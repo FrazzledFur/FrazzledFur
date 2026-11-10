@@ -3,7 +3,7 @@
 
 please check alt @wormsNmaggotz for stuff related to drama
  
- <code style="colour : orangered"></code> <div align="center">
+<span style="color: orangered"> Some green text </span> <div align="center">
 <details> gourdy, glisten, twisted astro, jeff the killer, neon green, ron
   <summary><strong> 🎃 f/os! NONSHARING  ! </strong></summary> 
 </details>
