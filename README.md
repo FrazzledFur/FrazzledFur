@@ -1,9 +1,11 @@
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=oleo+script+1&size=15&pause=1000&color=F43403&width=435&lines=autumn+forever+encapsulated+in+soul;pattering+against+the+mind+like+evening+rain;life+as+simple+as+a+caramel+apple;the+leaves+as+colourful+as+human+ambition;i+hope+this+lasts+forever)](https://git.io/typing-svg)
+
 <img width="2048" height="2048" alt="19031" src="https://github.com/user-attachments/assets/340692c7-d27d-4dd4-aadb-68c9117d02b3" />
 
 
 please check alt @wormsNmaggotz for stuff related to drama
  
-<span style="color: orangered"> Some green text </span> <div align="center">
+<div align="center">
 <details> gourdy, glisten, twisted astro, jeff the killer, neon green, ron
   <summary><strong> 🎃 f/os! NONSHARING  ! </strong></summary> 
 </details>
