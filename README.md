@@ -5,7 +5,7 @@
 <img width="2048" height="2048" alt="19031" src="https://github.com/user-attachments/assets/340692c7-d27d-4dd4-aadb-68c9117d02b3" />
 
 
-please check alt @wormsNmaggotz for stuff related to drama
+<p align="center">check alt @wormsNmaggotz for stuff related to drama
  
 <div align="center">
 <details> gourdy, glisten, twisted astro, jeff the killer, neon green, ron
@@ -32,7 +32,7 @@ please check alt @wormsNmaggotz for stuff related to drama
 </details>
 </div>
 
-please do not reupload any of my art
+<p align="center">please do not reupload any of my art
 
 <img width="1000" height="100" alt="fall-autumn" src="https://github.com/user-attachments/assets/85da6e80-41fd-47b0-b137-a89f0b19a105" />
 <img width="1000" height="100" alt="tumblr_9f6eaedd57f453dc3cc1c4f5933132fd_e5afd665_250" src="https://github.com/user-attachments/assets/3e39958f-0b0f-4a50-8ab5-afee1c4e4d4b" />
