@@ -53,6 +53,7 @@ please do not reupload any of my art
 <img width="99" height="56" alt="stamp (9)" src="https://github.com/user-attachments/assets/a94c3600-66cd-4bca-b33d-d2718744ff4c" />
 <img width="99" height="56" alt="stamp (10)" src="https://github.com/user-attachments/assets/ae20d74a-3141-45e5-9f0b-1e66769f6d0c" />
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=oleo+script+1&size=13&pause=1000&color=EBD48F&width=435&lines=One+baby+to+another+says%2C+%22I'm+lucky+to+have+met+you%22;I+don't+care+what+you+think+unless+it+is+about+me;It+is+now+my+duty+to+completely+drain+you;I+travel+through+a+tube+and+end+up+in+your+infection;Chew+your+meat+for+you;Pass+it+back+and+forth;In+a+passionate+kiss;From+my+mouth+to+yours;I+like+you;With+eyes+so+dilated%2C+I've+become+your+pupil;You+taught+me+everything+without+a+poison+apple;The+water+is+so+yellow%2C+I'm+a+healthy+student;Indebted+and+so+grateful%2C+vacuum+out+the+fluids;Chew+your+meat+for+you;Pass+it+back+and+forth;In+a+passionate+kiss;From+my+mouth+to+yours;I+like+you;You%2C+you%2C+you;You%2C+you%2C+you;One+baby+to+another+says%2C+%22I'm+lucky+to+have+met+you%22;I+don't+care+what+you+think+unless+it+is+about+me;It+is+now+my+duty+to+completely+drain+you;I+travel+through+a+tube+and+end+up+in+your+infection;Chew+your+meat+for+you;Pass+it+back+and+forth;In+a+passionate+kiss;From+my+mouth+to+yours;Sloppy%2C+lips+to+lips;You're+my+vitamins;I+like+you" alt="Typing SVG" /></a>
 
 
 
