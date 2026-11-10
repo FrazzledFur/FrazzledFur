@@ -8,7 +8,7 @@
 <p align="center">check alt @wormsNmaggotz for stuff related to drama
  
 <div align="center">
-<details> gourdy, glisten, twisted astro, jeff the killer, neon green, ron
+<details> gourdy, glisten, twisted astro, jeff the killer, neon green, ron animal hospital
   <summary><strong> 🎃 f/os! NONSHARING  ! </strong></summary> 
 </details>
 </div>
