@@ -1,5 +1,5 @@
+<img width="2048" height="2048" alt="19031" src="https://github.com/user-attachments/assets/340692c7-d27d-4dd4-aadb-68c9117d02b3" />
 
-<img width="2048" height="2048" alt="Untitled742_20261109194648" src="https://github.com/user-attachments/assets/c7fcdbd4-0c72-464f-b281-2918f7edaa6e" />
 
 please check alt @wormsNmaggotz for stuff related to drama
  
