@@ -3,7 +3,7 @@
 
 please check alt @wormsNmaggotz for stuff related to drama
  
- <cody style="colour : orangered">TESTE</code> <div align="center">
+ <cody style="colour : orangered"></code> <div align="center">
 <details> gourdy, glisten, twisted astro, jeff the killer, neon green, ron
   <summary><strong> 🎃 f/os! NONSHARING  ! </strong></summary> 
 </details>
