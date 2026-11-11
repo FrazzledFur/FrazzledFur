@@ -4,7 +4,8 @@
 
 <img width="2048" height="2048" alt="19031" src="https://github.com/user-attachments/assets/340692c7-d27d-4dd4-aadb-68c9117d02b3" />
 
-<img width="99" height="56" alt="stamp (17)" src="https://github.com/user-attachments/assets/22d51d51-4124-4d58-880c-d02919230d86" />
+<img width="373" height="350" alt="19050" src="https://github.com/user-attachments/assets/746b0c37-eba3-4b8a-9ed4-6f4b71c6a43d" />
+
 
 
 <div align="center">
