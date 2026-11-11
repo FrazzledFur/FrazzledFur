@@ -5,6 +5,7 @@
 <img width="2048" height="2048" alt="19031" src="https://github.com/user-attachments/assets/340692c7-d27d-4dd4-aadb-68c9117d02b3" />
 
 <img width="200" height="200" alt="ezgif-89746df758c34612" src="https://github.com/user-attachments/assets/57bffe4f-5fcd-4e33-9253-de880a179e61" /> <img width="400" height="153" alt="19051" src="https://github.com/user-attachments/assets/e3fa8003-c91d-4096-abec-b280eccf0ca5" />
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=sans&weight=10&size=16&duration=4000&pause=1000&color=F43403&width=435&lines=Teenage+angst+has+paid+off+well;Now%2C+I'm+bored+and+old;Self-appointed+judges+judge;More+then+they+have+sold;If+she+floats+then+she+is+not;A+witch+like+what+we've+thought;A+downpayment+on+another;One+at+salem's+lot;Serve+the+servants%2C+oh+no;Serve+the+servants%2C+oh+no;Serve+the+servants%2C+oh+no;Serve+the+servants;That+legendary+divorce+is+such+a+bore;As+my+bones+grew+they+did+hurt;They+hurt+really+bad;I+tried+hard+to+have+a+father;But+instead%2C+I+had+a+dad;I+just+want+you+to+know+that+I;Don't+hate+you+anymore;There+is+nothing+I+could+say;That+i+havent+thought+before;Serve+the+servants%2C+oh+no;Serve+the+servants%2C+oh+no;Serve+the+servants%2C+oh+no;Serve+the+servants;That+legendary+divorce+is+such+a+bore;Serve+the+servants%2C+oh+no;Serve+the+servants%2C+oh+no;Serve+the+servants%2C+oh+no;Serve+the+servants%2C+oh+no;Serve+the+servants%2C+oh+no;Serve+the+servants%2C+oh+no;Serve+the+servants;That+legendary+divorce+is+such+a+bore)](https://git.io/typing-svg)
 
 
 
