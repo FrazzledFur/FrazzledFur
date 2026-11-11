@@ -5,7 +5,8 @@
 <img width="2048" height="2048" alt="19031" src="https://github.com/user-attachments/assets/340692c7-d27d-4dd4-aadb-68c9117d02b3" />
 
 
-<p align="center">check alt @wormsNmaggotz for stuff related to drama
+<img width="400" height="153" alt="d319913dfb11b9707bbdb4c911afc94ee2ab84d3a25aa46a5aea55219e2a43ce" src="https://github.com/user-attachments/assets/4655af0a-b249-4917-b43c-75392ba81c46" />
+
  
 <div align="center">
 <details> gourdy, glisten, twisted astro, jeff the killer, neon green (from the game neon white) , ron animal hospital
