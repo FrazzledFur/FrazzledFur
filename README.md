@@ -39,8 +39,8 @@
 </div>
 
 <div align="center">
-<details> hi im not racist i just do not believe that racism and discrimination is one sided. i do not believe white people are victims because we arent and i do not support meowbah and meows actions
-  <summary><strong> ☕ notice  ! </strong></summary> 
+<details> hi im not racist i just do not believe that racism and discrimination is one sided. i do not believe white people are victims because we arent and i do not support meowbah or meows actions. pawlickk actively ignores discrimination if it is done against white people and thinks people who dont ignore it are racist. i am not racist i have never intentionally been racist and i will never be racist i believe thouroughly that race is just somebodys design and seperating or thinking certain races is horrible behaviour that should never happen
+  <summary><strong> ☕ read please </strong></summary> 
 </details>
 </div>
 
