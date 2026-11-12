@@ -38,6 +38,12 @@
 </details>
 </div>
 
+<div align="center">
+<details> hi im not racist i just do not believe that racism and discrimination is one sided. i do not believe white people are victims because we arent and i do not support meowbah and meows actions
+  <summary><strong> ☕ notice  ! </strong></summary> 
+</details>
+</div>
+
 <p align="center">please do not reupload any of my art
 
 <img width="1000" height="100" alt="fall-autumn" src="https://github.com/user-attachments/assets/85da6e80-41fd-47b0-b137-a89f0b19a105" />
