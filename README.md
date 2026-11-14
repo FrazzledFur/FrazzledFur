@@ -39,7 +39,7 @@
 </div>
 
 <div align="center">
-<details> hi im not racist i just do not believe that racism and discrimination is one sided. i do not believe white people are victims because we arent and i do not support meowbah or meows actions. pawlickk actively ignores discrimination if it is done against white people and thinks people who dont ignore it are racist. i am not racist i have never intentionally been racist and i will never be racist i believe thouroughly that race is just somebodys design and seperating or thinking certain races is horrible behaviour that should never happen
+<details> dni about any of this bullshit i am so genuinely fucking unstable and past my limit. i am TRYING to heal if you retards would hop off my fucking tail and let me try. i will be on strict dniucf on ponytown for the time being and anybody who breaks that will be blocked immediatly. do not contact me about any of this let me try to improve myself without having sixteen more docs made about how im such a pedophile creep please oh my god
   <summary><strong> ☕ read please </strong></summary> 
 </details>
 </div>
