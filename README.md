@@ -33,7 +33,7 @@
 
 
 <div align="center">
-<details> doubles, people who are against smoking, anyone involved with @snowyrescue or her henchmen, tcooal fans, brandonfarris/camerondomasky fans, radqueers, anypup under 14, anypup above 26, people who think a clockwork orange is disgusting, pawlickk or anybody involved with them.
+<details> doubles, people who are against smoking, anyone involved with @snowyrescue or her henchmen, tcooal fans, brandonfarris/camerondomasky fans, radqueers, anypup under 14, anypup above 26, people who think a clockwork orange is disgusting, pawlickk or anybody involved with them. and being happy about ffr disbanding is disgusting behaviour those people kept me alive that gc kept me here and celebrating it just because you didnt like it is weird
   <summary><strong> 🐶 dni ! </strong></summary> 
 </details>
 </div>
